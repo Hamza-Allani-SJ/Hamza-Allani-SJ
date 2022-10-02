@@ -9,5 +9,4 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning everything :)
 - 💬 Ask me about everything you want xd
 - 📫 How to reach me: https://www.facebook.com/
-- 😄 Pronouns: mte3na rak
 - ⚡ Fun fact: Ubunto : keep trying !
